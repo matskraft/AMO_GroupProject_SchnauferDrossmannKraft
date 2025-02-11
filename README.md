@@ -1,0 +1,1 @@
+# -AMO-GroupProject_SchnauferDro-mannKraft
