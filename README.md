@@ -1,1 +1,1 @@
-# -AMO-GroupProject_SchnauferDro-mannKraft
+# AMO_GroupProject_SchnauferDrossmannKraft
